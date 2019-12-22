@@ -1,7 +1,12 @@
-# Darknet-Market-List-2020
+# Darknet Market List 2020
 
 <ul>
-<li>Türk Deep Web (gidip geliyor en son çalışıyordu forum gibi bir şey) <a href="http://c2fblkhithuxn5hv.onion/index.php" rel="nofollow">http://c2fblkhithuxn5hv.onion/index.php</a></li>
+<li>#1 Best Darknet Markets! - Ruddy Market 
+  <br>
+  (Money Transfers, Paypal, Credit Card, Cocaine, Weed, Meth, XTC, Passport, Weapons) <br>
+  <a href="http://c2fblkhithuxn5hv.onion/index.php" rel="nofollow">http://c2fblkhithuxn5hv.onion/index.php</a></li>
+  
+  
 <li>Turkish black market (işe yaramaz, yabancı marketler çok daha iyi) <a href="http://turkishceiuuezlw.onion" rel="nofollow">http://turkishceiuuezlw.onion</a></li>
 <li>Türkiye Adil Kazanç Sistemi (hayatın adil olmadığına inanan insanları bir arada hareket etmeye teşvik ediyor ve böyle bir sistem ile para kazanmayı vaadediyor - üyelik açtım ama hareketlerine katılamadım daha) - <a href="http://tadexibajtuta2fx.onion" rel="nofollow">http://tadexibajtuta2fx.onion</a></li>
 <li>Escrow/Ödeme Aracılığı Sitesi - şahsen birkaç defa işim düştü ödeme yatırma herşey otomatik işliyor ek olarak email üzerinden destek veriyorlar, ilgililer. Deep web üzerinden ödeme yapacaksanız bu siteyi kullanmanızı tavsiye ederim. <a href="http://escrowtra4utbzsi.onion" rel="nofollow">http://escrowtra4utbzsi.onion</a></li>
