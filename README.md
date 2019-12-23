@@ -1,12 +1,12 @@
 # Darknet Market List 2020
 
 <ul>
-<li>Ruddy Market - (#1 Best Darknet Markets) - (No Scam)
+  <li><b>Ruddy Market - (#1 Best Darknet Markets) - (No Scam)</b>
   <br>
   <br>
-  Money Transfers, Credit Card, Counterfeits Money, Passport, Phone, 
+ <li> Money Transfers, Credit Card, Counterfeits Money, Passport, Phone, 
   <br>
-  Weapons, Guns, Cocaine, Meth, XTC, LSD, Cannabis, Weed, Hash 
+  <li>Weapons, Guns, Cocaine, Meth, XTC, LSD, Cannabis, Weed, Hash 
   <br>
 
   <a href="http://mzeh627q7bmzsoxozampnsstkfnby2zvm3y73qcsy43n3eaveehqjoyd.onion" rel="nofollow">http://mzeh627q7bmzsoxozampnsstkfnby2zvm3y73qcsy43n3eaveehqjoyd.onion</a></li>
